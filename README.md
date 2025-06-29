@@ -76,5 +76,5 @@ Last Updated: June 2025
   Contact Us
 
   Questions about your privacy or data? Contact us:
-  - Email: [rodgers.magabo.com]
+  - Email: [rodgers.magabo@gmail.com]
   - We'll respond within 48 hours
